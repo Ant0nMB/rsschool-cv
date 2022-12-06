@@ -12,7 +12,7 @@
 # **Contacts**
   * *Instagram*: *[hardba](https://www.instagram.com/hardba/)* 
   * *Tel: +3754477850***
-  * *Email*: *[anton.nenukov@gmail.com](anton.nenukov@gmail.com)*
+  * *Email*: *anton.nenukov@gmail.com*
 
 
 
