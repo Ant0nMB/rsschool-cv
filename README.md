@@ -1,1 +1,1 @@
-# https://Ant0nMB.github.io/rsschool-cv/cv
+https://github.com/Ant0nMB/rsschool-cv/tree/rsschool-cv-html
